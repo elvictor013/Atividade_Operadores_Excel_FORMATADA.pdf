@@ -1,0 +1,1 @@
+# Atividade_Operadores_Excel_FORMATADA.pdf
